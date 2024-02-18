@@ -1,1 +1,1 @@
-[Coursera QMZLEEY483GJ.pdf](https://github.com/DashonJennings/GoogleITSupportProfessional/files/14321240/Coursera.QMZLEEY483GJ.pdf)
+![Coursera QMZLEEY483GJ](https://github.com/DashonJennings/GoogleITSupportProfessional/assets/160358839/6ee664a9-f4ce-4c46-97ae-369eef579173)
